@@ -1,6 +1,3 @@
-https://github.com/user-attachments/assets/cdc76187-cbff-42bb-b96b-5012b3a1aacd
-
-
 
 https://github.com/user-attachments/assets/da13b1c3-cfcc-4dfd-9b98-9ec58a518541
 
